@@ -1,1 +1,1 @@
-# mega-sena-ceci-e-delia
+# megasena-2A
